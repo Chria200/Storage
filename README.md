@@ -1,2 +1,2 @@
 # ca879983
-![download](https://user-images.githubusercontent.com/128835311/228313073-05e8f4ee-8507-4953-bc85-a5663dc77ca4.jpg)
+![download](https://user-images.githubusercontent.com/128835311/228313843-7ec4d6fd-0e70-47f9-b94f-352d8283c919.png)
